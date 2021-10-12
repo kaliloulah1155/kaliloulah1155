@@ -1,5 +1,5 @@
 - 👋 Hi, I’m #KONATE #Ibrahima
-- 👀 I’m interested in web and mobile development
+- 👀 I’m interested in offering web and mobile application
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on all people 
 - 📫 How to reach me on +225 01 73 832 778
