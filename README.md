@@ -2,7 +2,7 @@
 - 👀 I’m interested in offering web and mobile application
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate with all people 
-- 📫 You can call me on tel:+225 01 73 832 778
+- 📫 You can call me on +225 01 73 832 778
 - ✨ Mail me on ibrahim1155@outlook.com
 
 <!---
